@@ -1,2 +1,0 @@
-# Code-yaseenmemon
-Birthday Template 
